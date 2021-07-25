@@ -1,1 +1,1 @@
-Moved to [ahti.space](https://ahti.space/git/uplime)
+Moved to [ahti.space](https://ahti.space/git/uplime) :)
